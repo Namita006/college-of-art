@@ -1,1 +1,1 @@
-# college-of-art
+Graphic designing
